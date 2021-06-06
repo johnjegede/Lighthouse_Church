@@ -12,6 +12,6 @@ OPTIONS-
 
 
 
-2.  squarespace.com
+2.  wix.com or squarespace.com
 
 
